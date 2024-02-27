@@ -13,3 +13,4 @@ i have my own buissnes
 kaihea/kaihea is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes. reach me email me it is my email addres is kaihealey12345@hotmail.com
 --->
+if you what to llearn abaut more i bout me go on this website outlook then email me kaihealey12345@hotmail.com
